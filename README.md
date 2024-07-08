@@ -1,5 +1,5 @@
-# Transporte en *[Transport in]* Costa Rica
-Planes, datos y otros documentos sobre transporte en Costa Rica *[Plans, data and other documents on transport in Costa Rica]*
+# Transporte en Costa Rica *[Transport in Costa Rica]* 
+Planes, datos y otros documentos sobre transporte Costa Rica *[Plans, data and other documents on transport in Costa Rica]*
 <b> 
 
 Lista comunitaria de publicaciones, datos y otra información útil sobre transporte en Costa Rica *[Community list of publications, data and other useful information on transport in Costa Rica]* 🚲🚌🚋🌳🚊
